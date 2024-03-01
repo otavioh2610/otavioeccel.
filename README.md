@@ -12,3 +12,4 @@ otavio.eccel.silva@escola.pr.gov.br
 
 @tavinq_777
 
+![](https://media.tenor.com/ByFHQDYTQ2oAAAAM/sadas.gif)
